@@ -4,7 +4,7 @@
 ***Read Solve_vulnerable for close vulnerability in your website 
 Vulnerable Code -->vbcflnyntpzy***
 
-If you have have any problem text me [CodeB0ss](https://t.me/uncodeboss)
-If have other problems just change your weblist/list.
+***If you have have any problem text me [Author](https://t.me/uncodeboss)
+If have other problems just change your weblist/list.***
 
-By @codeb0ss
+***By [CodeB0ss](https://t.me/codeb0ss)***
